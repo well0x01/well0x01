@@ -59,7 +59,7 @@ Atualmente desenvolvo projetos que integram **automação, inteligência artific
 
 ## 📫 Contato
 
-- ✉️ Email: well0x01@pm.me  
+- ✉️ Email: wesleyluna@protonmail.com
 - 💼 LinkedIn: [linkedin.com/in/well0x01](https://linkedin.com/in/well0x01)  
 - 🐦 Twitter: [@well0x01](https://twitter.com/well0x01)
 
